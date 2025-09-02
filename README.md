@@ -1,2 +1,1 @@
-When you help someone 
-  You help everyone
+#                                                                       "When you help someone, you help everyone."
