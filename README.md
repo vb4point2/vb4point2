@@ -1,1 +1,2 @@
-# vb4points2
+When you help someone 
+  You help everyone
